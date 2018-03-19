@@ -27,6 +27,6 @@
 | Raquel Gomes da Silva             | @raquelgomes26      |
 | Leandro de Menezes Galindo Filho  | @Leandrogalindo     |
 | Kellen Emanuele Alves Miranda     | @kellenemanuelle    |
-
+| Maria Gabriela de Queiroz         | @gabrielaqueiroz    |
 
 
